@@ -1,4 +1,4 @@
-### Olá! seu sou o Fabrício Ramalho 👋
+### Olá! Eu sou o Fabrício Ramalho 👋
 
  ## 
 
